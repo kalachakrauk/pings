@@ -1,0 +1,1 @@
+# pings This app is going to be one of the best mobile phone applications in the world as with just a few clicks you will be able to get your person to ring or text you with just a few clicks anybody can code this with me 
